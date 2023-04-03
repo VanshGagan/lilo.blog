@@ -1,8 +1,9 @@
 +++
-title = "Mein Projekt das s lutschen"
+title = "Meine Webseite"
 date = "2023-04-03"
 draft = false
 pinned = false
-description = "halllo meine Physaik freunde"
+description = ""
 +++
-heute schauen wir uns das reflexionsgesetz am neee
+Hallo
+Ich heisse Vansh Gagan und das ist meine Webseite.
