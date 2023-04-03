@@ -1,5 +1,5 @@
 +++
-title = "vansh der bossi"
+title = "Mein Projekt das s lutschen"
 date = "2023-04-03"
 draft = false
 pinned = false
