@@ -35,9 +35,17 @@ Wir haben auch Livia interviewt, eine Studentin, die eine Maturaarbeit über Men
 Herr Hirt erwähnt während des Gesprächs, dass diese Ziele auch als SMART-Ziele bezeichnet werden. 
 Der Buchstabe "S" steht für selbstbestimmt und spezifisch. Das Ziel muss so formuliert sein, dass es von sich selbst abhängt. Ausserdem muss es klar und präzise definiert sein.
 
+
+
 Der Buchstabe "M" steht für messbar, in Schritten. Es ist besonders wichtig, die wichtigsten Etappenziele in Wochen und Monate zu unterteilen und nicht alles auf einmal zu erledigen. So kann man den Fortschritt kontrollieren und regelmäßig Ergebnisse erzielen. Man kann sich die folgende Frage stellen: "Woran erkenne ich, dass ich mein Ziel erreicht habe?".
+
+
 "A" steht für attraktiv. Das Ziel muss persönlich bedeutsam und attraktiv sein, damit man sich darauf einlässt.
+
+
 "R" für realistisch - Ziele sollten so realistisch wie möglich gesetzt werden, die Vision muss über uns hinausgehen, aber die Ziele müssen erreichbar sein, um Demotivation zu vermeiden.
+
+
 "T" steht für Termin - Ziele sind Wünsche mit einer festen Frist. Anstatt zu sagen: "Ich werde bald mit dem Training beginnen", ist es wichtig, ein konkretes Datum festzulegen und dann zu beginnen. Dazu muss man den Glauben und den Willen an sich selbst haben, um anzufangen.
 
 Das Modell hilft beim Setzen von Zielen, denn es stellt sicher, dass alles klar, präzise und messbar ist und dass diese Ziele innerhalb eines bestimmten Zeitraums erreicht werden können. 
