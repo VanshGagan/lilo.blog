@@ -25,6 +25,8 @@ Durch die Diskussion mit ihm haben wir gelernt, dass es besser ist, sich realist
 
 Wir haben auch Livia interviewt, eine Studentin, die eine Maturaarbeit über Mentaltraining geschrieben hat und selbst ein solches Training absolviert hat. Livia wollte herausfinden, wie sich mentales Training auswirkt, und hat daher für kurze Zeit an einem solchen Training teilgenommen.  Zudem wollte sie auch ihre mentale Stärke im Volleyball verbessern, weshalb sie sich für dieses Training entschieden hat. Wie Herr Hirt betont auch Livia, wie wichtig es ist, sich realistische Ziele zu setzen. Sie hat dies in ihrem eigenen Mentaltraining gelernt und wendet es auch heute noch im Alltag an. Für sie sind kleine Ziele effektiver, da sie uns ein Erfolgserlebnis verschaffen und uns motivieren können, während zu hoch gesteckte Ziele eher demotivierend wirken können.
 
+![Bild: Livia Loretan](livia.jpg)
+
 {{<box>}}
 
 ##### **SMART Ziele**
@@ -67,6 +69,8 @@ Einige Jahre später waren die Kinder aus den ärmsten Familien auf dem Arbeitsm
 Ramon Siegenthaler erzählt uns von zwei Arten des positiven Denkens: Die intrinsische Motivation und die extrinsische Motivation. Die intrinsische Motivation kommt von innen, das heisst wie man über sich selbst denkt und ob man an seinen Erfolg glaubt. 
 Hier kommt die Autosuggestion ins Spiel. Diese Methode basiert auf der Annahme, dass unser Denken, Fühlen und Handeln beeinflusst wird. Durch das Wiederholen von positiven Sätzen kann man das Unterbewusstsein positiv beeinflussen. Diese Technik wird heutzutage im Bereich des Mentaltrainings eingesetzt, um negative Gedanken zu überwinden, die einen Menschen noch weiter von seinen Zielen entfernen.
 Die extrinsische Motivation ist ein Faktor wie die Menschen, die einen unterstützen. Herr Siegenthaler teilt uns mit, dass die anderen im besten Fall nicht viel Einfluss haben sollten, was vom Ziel ablenken kann. Aber die extrinsische Motivation kann helfen, positiv zu bleiben. Livia ist auch der Meinung, dass ein positives Umfeld einen großen Einfluss haben kann. Livia erklärt uns, wie sie positiver war, wenn ihr Trainer ihr sagte, dass sie etwas gut gemacht hatte, oder wenn ihr Vater ihr eine gute Bemerkung machte. Solche Dinge haben Livia motiviert, weiterzumachen.
+
+![Bild: Ramon Siegethaler](screenshot-2023-06-01-192213.png)
 
 ##### **Die Schattenseite einer guten Mentalität**
 
