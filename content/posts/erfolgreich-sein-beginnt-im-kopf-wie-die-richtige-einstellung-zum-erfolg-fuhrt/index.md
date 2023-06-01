@@ -1,7 +1,7 @@
 +++
 title = "Erfolgreich sein beginnt im Kopf – Wie die richtige Einstellung zum Erfolg führt "
 date = "2023-06-01"
-draft = true
+draft = false
 pinned = false
 tags = ["Deutsch", "Reportage"]
 +++
