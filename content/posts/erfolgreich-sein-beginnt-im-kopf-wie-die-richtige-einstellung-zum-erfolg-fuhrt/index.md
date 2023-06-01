@@ -49,7 +49,7 @@ Kishore Hirt und Livia haben uns von einem Prinzip erzählt, das dem SMART-Prinz
 Ist Erfolg wirklich eine Frage der Einstellung? Hat ein Kind, das in Armut aufwächst oder im falschen Land geboren wurde, die gleichen Chancen auf Erfolg oder gibt es Faktoren wie Umstände, Privilegien und Glück, die den Erfolg beeinflussen? 
 Wir haben ein sehr aufschlussreiches Gespräch mit Herrn Siegenthaler geführt. Ramon Siegenthaler ist ein langjähriger Spitzensportler und Trainer, der sowohl im Handball als auch im Parkour aktiv war und sein Wissen nun als Erwachsenenbildner einsetzt, um Athleten bei der körperlichen und mentalen Vorbereitung auf den Wettkampf zu helfen.
 
-> *"Jemand der in China aufwächst und zum Beispiel sehr viel Talent im Fussball hat oder dem das Umfeld fehlt, dann ist die Wahrscheinlichkeit, dass er sehr gut oder bekannt wird, ziemlich klein"* 
+> *"Jemand der in China aufwächst und zum Beispiel sehr viel Talent im Fussball hat oder dem das Umfeld fehlt, dann ist die Wahrscheinlichkeit, dass er sehr gut oder bekannt wird, ziemlich klein."* 
 >
 > * *Ramon Siegethaler*
 
@@ -78,7 +78,7 @@ Sich immer daran erinnern, dass man der Beste ist, um sein Ziel zu erreichen. So
 Livia weist jedoch darauf hin, dass sie schon oft erlebt hat, dass Menschen einem den Erfolg nicht gönnen und eifersüchtig sind. Livia betrachtet diese Situationen jedoch nicht als negativ, sondern als natürliche Gedanken, die sicherlich jeder mindestens einmal hatte, weil man besser sein möchte. Für Livia ist es wichtig, dass man seine Ziele auf ethische und moralische Weise verfolgt und es vermeidet, anderen zu schaden oder sie auszubeuten. Es geht darum, seinen Erfolg auf eine Weise zu erreichen, die mit den eigenen Werten und Überzeugungen im Einklang steht.
 Unsere Experten sind sich einig: Es ist sehr wichtig, auf sich selbst zu schauen und nicht immer nur auf andere. Sie betonen in diesem Zusammenhang, dass es wichtig ist, jemanden nicht grundlos auszunutzen oder sich als Mensch über andere zu stellen.
 
-> *“Beim Nachwuchsfussball versucht jeder besser zu sein als die anderen, Freundschaften und Dynamiken zwischen Spielern verschieben sich mit der Zeit. Dann heisst es: Fressen oder gefressen werden".*
+> *“Beim Nachwuchsfussball versucht jeder besser zu sein als die anderen, Freundschaften und Dynamiken zwischen Spielern verschieben sich mit der Zeit. Dann heisst es: Fressen oder gefressen werden."*
 >
 > * *Kishore Hirt* 
 >
