@@ -81,6 +81,8 @@ Unsere Experten sind sich einig: Es ist sehr wichtig, auf sich selbst zu schauen
 > *“Beim Nachwuchsfussball versucht jeder besser zu sein als die anderen, Freundschaften und Dynamiken zwischen Spielern verschieben sich mit der Zeit. Dann heisst es: Fressen oder gefressen werden".*
 >
 > * *Kishore Hirt* 
+>
+>   ![Bild: Rayan Madani (U16-Fussballspieler des BSC Young Boys), aufgenommen von Thanushan Ravi auf dem Fussballfeld Allmend.](thanubild.jpg)
 
 Während unseres Interviews mit Herrn Hirt äussert er seine Ansicht, dass sich Freundschaften im Laufe der Zeit verändern können, wenn man sich in einer gemeinsamen Konkurrenzsituation befindet. Allerdings betont er auch, dass diese Veränderung nicht zwangsläufig das Ende einer Freundschaft bedeuten muss. Vielmehr könne eine solche Konkurrenzsituation dazu beitragen, dass sich Freunde gegenseitig zu noch größeren Leistungen anspornen und dadurch mental stärker werden. Herr Siegenthaler teilt diese Ansicht und sieht darin sogar etwas Positives. Er findet auch nicht, dass es etwas Negatives ist, im Gegenteil, er denkt, dass so etwas jemanden mental noch stärker macht.
 Laut Ramon Siegenthaler gibt es viele Menschen, die andere Mitmenschen im Stich gelassen oder ausgenutzt haben. Ramon Siegenthaler zeigt uns zwei Perspektiven zu diesem Thema. Natürlich kann so etwas unfair sein, aber man muss auch bedenken, dass die in einer Konkurrenz alle die Regeln kennen und verhindern müssen, dass sie ausgenutzt werden.
