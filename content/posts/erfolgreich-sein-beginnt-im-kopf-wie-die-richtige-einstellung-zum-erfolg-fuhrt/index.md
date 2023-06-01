@@ -27,7 +27,7 @@ Wir haben auch Livia interviewt, eine Studentin, die eine Maturaarbeit über Men
 
 {{<box>}}
 
-SMART Ziele
+##### SMART Ziele
 
 Herr Hirt erwähnt während des Gesprächs, dass diese Ziele auch als SMART-Ziele bezeichnet werden. 
 Der Buchstabe "S" steht für selbstbestimmt und spezifisch. Das Ziel muss so formuliert sein, dass es von sich selbst abhängt. Ausserdem muss es klar und präzise definiert sein.
